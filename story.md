@@ -1,0 +1,1 @@
+there was an alien who wanted to wipe out half the living creatures.He realised doing that wasn't possible by killing half the population, because there are lots of planets.So he seeked for 6 gems called infinity stones, each controlling an aspect of life.
